@@ -3,12 +3,13 @@ should have been *Warpdriver*But then again I don't know if once we experience W
 Will be infact a warmdrive after all! Long Journey
 - 👀 I’m interested in Girls! Lol,My first
 - Priority and formost is to Complete all the TODOS Lists I set myself on every repository that I make or contribute to...
-- 🌱 I’m currently learning ... Online CMRS and online storefronts.
-- 💞️ I’m looking to collaborate on ... Any of them to arrays that I mentioned and see if it for me or not
+- 🌱 longtime Learner and been on Github and never left, this time around I am  committed on going them milestones 
+To get the achievement (s). That i have proposed to merge with my mundane tasks we call life! .
+- 💞️ I’m looking to collaborate on ... First and foremost, with my kids, have been absent a few days, and therefore, aside from lon hours of studying Github course along with freecodecamp certificate program and w3c structure code school I have to also commitand collaborate with
+- as well. One of my biggest achievements today is getting hired Looking forward I making ends meet by putting in hardwork and whatever helps I havetod in order to make it happen
 - 📫 How to reach me ...email:warpdriver@gmail.com
-- ❤️  founder & supporting contributors that Advocate A great Moral of Conduct
-    
-- letting me be part of this awesome open source environment know as Github.com!
+- ❤️ https://wwww.Github.com & https://www.freecodecamp.com. founders & supporters much love to you all!
+   For allowing me in these, awesome open source environments!
 <!---
 Warmdriver/Warmdriver is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
